@@ -1,5 +1,10 @@
 ![enter image description here](https://i.sstatic.net/H3UvjxbO.jpg)
 
+
+![enter image description here](https://i.sstatic.net/AJR9eD58.jpg)
+
+https://www.youtube.com/watch?v=09CYiCc0iUs
+
 ![enter image description here](https://i.sstatic.net/0b74mhmC.jpg)
 
 https://www.perplexity.ai/search/if-possible-analysis-it-b-pwzs-2R5YoRa0T7ScWDCdWqSXPQ
